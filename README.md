@@ -2,6 +2,8 @@
 
 Supervisory
 
+![Types of Surveillance in Bank - visual selection (8)](https://github.com/user-attachments/assets/5f0bfa24-442b-4ed8-bad3-9922982317ab)
+
 
 Types of Surveillance in Bank
 
